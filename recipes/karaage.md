@@ -1,17 +1,22 @@
 # 唐揚げ
 
-骨なし、皮なしチキン６枚位に対し、
-醤油大さじ4、酒大さじ2位、チューブの生姜(ジンジャー)1／3本
-でもいつも目分量だけどね。
-あげる時に片栗粉つけるよ
+- 骨なし、皮なしチキン６枚位に対し、
+- 醤油大さじ4、酒大さじ2位、チューブの生姜(ジンジャー)1／3本
+- Leave for 1hr.
+- あげる時に片栗粉つける (5 mins)
 
+### Hanamaulu
 
+Attempt by someone in a newspaper
 
-Chicken Thighs (if have boneless even better)
+- 2 lbs chicken thighs
+- 1-2 tbls ginger
+- 1 clove minced garlic
+- 1/2 teaspoon salt
+- 1/2 cup sugar
+- 1/2 cup shoyu
+- 1 teaspoon vinegar
+- 1 teaspoon mirin (or sake)
+- 2 teaspoons sesame oil
+- 1 teaspoon oyster sauce
 
-Cut in bite size pieces and put in bag.
-Add even amount of shoyu and sake, maybe a little less sake, so that fully soaked.
-Add shoga (tube) to liking (pretty much)
-Leave for 1hr.
-
-Put karakuriko and deep fry for 5 min.,  or cook in fry pan but not as crispy.
