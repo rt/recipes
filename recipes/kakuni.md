@@ -4,6 +4,7 @@ Instant Pot
 
 **ingredients**
 
+- 2 slabs pork belly
 - 1200 ml water + dashi
 - 1 cup sake
 - 1/2 cup shoyu
