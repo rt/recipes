@@ -25,5 +25,5 @@ From Susan.
 
 **notes**
 
-Can add 2 tbsp flour for more thickness
-Add bacon and/or cheese
+- Can add 2 tbsp flour for more thickness
+- Add bacon and/or cheese

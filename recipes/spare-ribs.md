@@ -2,8 +2,8 @@
 
 Instant Pot
 
-https://www.pressurecookrecipes.com/instant-pot-spare-ribs/
-https://www.wellplated.com/instant-pot-ribs/
+- https://www.pressurecookrecipes.com/instant-pot-spare-ribs/
+- https://www.wellplated.com/instant-pot-ribs/
 
 **ingredients**
 

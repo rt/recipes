@@ -16,7 +16,7 @@ Instant Pot
 
 **directions**
 
-Parboil whole slab 20 mins
-Rinse with water
-Cut into 1 inch slices
-High pressure 20 mins
+- Parboil whole slab 20 mins
+- Rinse with water
+- Cut into 1 inch slices
+- High pressure 20 mins

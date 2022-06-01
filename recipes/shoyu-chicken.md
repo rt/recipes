@@ -11,11 +11,11 @@ Sauce:
 - Ginger (grade)
 - + water to make 1 ¼ cups
 
-Flour Chicken
-High Frying Pan ¼ in oil (both sides of chicken to sear)
+- Flour Chicken
+- High Frying Pan ¼ in oil (both sides of chicken to sear)
 
-Oven: 400 degrees
-Skin side down
-Foil over but let air flow thru
-30 mins > turn over
-30 mins
+- Oven: 400 degrees
+- Skin side down
+- Foil over but let air flow thru
+- 30 mins > turn over
+- 30 mins
